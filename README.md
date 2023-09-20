@@ -1,4 +1,4 @@
-# Entrance Web3
+# Entrances Web3
 
 0xmila (1).jpg
 0xmila (10).jpg
